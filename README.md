@@ -1,2 +1,2 @@
 # Ashley-ku
-Yeniyim.
+yeniyim, henüzöğrenciyim. 
